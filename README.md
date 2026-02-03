@@ -1,16 +1,42 @@
-## Hi there 👋
+ʚ ︵‿︵‿︵꒰ welcome ꒱︵‿︵‿︵ ɞ
+┊﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍┊
 
-<!--
-**Exportion26/Exportion26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+꒰ ♡ ꒱ name :
+┊　Leena Srijandon
 
-Here are some ideas to get you started:
+꒰ ♡ ꒱ pronouns :
+┊　her
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+꒰ ♡ ꒱ focus :
+┊　web development
+┊　web design
+┊　ux / ui design
+┊　mobile design
+
+꒰ ♡ ꒱ working style :
+┊　playful outside
+┊　focused inside
+
+꒰ ♡ ꒱ languages :
+┊　html — comfortable
+┊　css — comfortable
+┊　php — comfortable
+┊　javascript — basics
+┊　sql — basics
+┊　dart — basics
+┊　java — basics
+┊　c — basics
+┊　c++ — learning
+┊　python — basics
+
+꒰ ♡ ꒱ design tools :
+┊　figma
+
+꒰ ♡ ꒱ note :
+┊　open to constructive feedback
+┊　in a kind and creative space
+
+﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+   ︶︶︶︶︶︶︶︶︶︶︶︶
+
+( ˶ᵔ ᵕ ᔨ˶ ) ‹𝟹
