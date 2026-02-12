@@ -32,6 +32,9 @@
 
 ꒰ ♡ ꒱ design tools :
 ┊　figma
+┊　canva
+┊　Adobe Photoshop
+┊　Adobe Illustrator
 
 ꒰ ♡ ꒱ note :
 ┊　open to constructive feedback
